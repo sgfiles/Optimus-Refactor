@@ -1,2 +1,2 @@
 # Optimus-Refactor
-Advancing access to all beings - Horiseon
+Advancing access to website for all. Consolidate and optimized. 
